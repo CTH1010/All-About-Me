@@ -1,12 +1,12 @@
 # Who am I?
-Hi! My name is Carson He. I'm 17 years old, and I'm from East Brunswick, New Jersey. I'm currently a junior at East Brunswick High School. 
+My name is Carson He. I'm 17 years old, and I'm from East Brunswick, New Jersey. I'm currently a junior at East Brunswick High School. 
 
 ![Website Pic](https://user-images.githubusercontent.com/85560731/121823650-a87d7900-cc74-11eb-8c8b-ede8a51e00fe.png) 
 
 # Social Media Info
 
 - Facebook: @Carson He - https://facebook.com/carson.he.14
-- I try to stay off of social media as much as I can. No Twitter, Instagram, or TikTok for me.
+- I try to stay off of social media as much as I can.
 
 # Brag Sheet
 
